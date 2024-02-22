@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **HTML, CSS, JAVASCRIPT, BOOTSTRAP, REACT**
 
-- 📫 How to reach me **bhargavadulapuram**
+- 📫 How to reach me **bhargavadulapuram98@gmail.com**
 
 - 📄 Know about my experiences [https://1drv.ms/w/c/4cea67d87ce8095f/Ef-mPAcbJfZGlu8KTtw7EMABf3qCcq-mVvqST248-iijzA?e=tSP3v4](https://1drv.ms/w/c/4cea67d87ce8095f/Ef-mPAcbJfZGlu8KTtw7EMABf3qCcq-mVvqST248-iijzA?e=tSP3v4)
 
